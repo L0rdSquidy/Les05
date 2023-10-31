@@ -23,7 +23,8 @@ Snijd ook de paprika in kleine blokjes en bak nog 5 min mee.
 Voeg 2 à 3 eetlepels van de Mexicaanse kruidenmix toe aan het kipmengsel samen met 3 eetlepels water.
 
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fsmaakmenutie.nl%2Fwrap-krokante-kip%2F&psig=AOvVaw3q7E19RneVwIg7-QFlEntk&ust=1698849958787000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIj6-rXDoIIDFQAAAAAdAAAAABAE
+![image](https://github.com/L0rdSquidy/Les05/assets/144682503/5776f033-cd2e-42ca-bfc6-3921d85066fb)
+
 
 
 Laat de maïs uitlekken en warm nog even mee in de pan.
