@@ -1,17 +1,17 @@
 # Les05
 # Kip Wrap
-8 middelgrote tortilla’s
-2 rode paprika’s
-1 klein blikje maïs
-500 gr kip (in blokjes)
-1 ui
-2 eetlepels Mexicaanse kruidenmix (taco of burrito)
-2 lente uien
-Lekker voor er bij
-zure room
-geraspte kaas
-guacamole
-tacosaus
+*  8 middelgrote tortilla’s
+* 2 rode paprika’s
+*  1 klein blikje maïs
+* 500 gr kip (in blokjes)
+*  1 ui
+* 2 eetlepels Mexicaanse kruidenmix (taco of burrito)
+*  2 lente uien
+*  Lekker voor er bij
+*  zure room
+*  geraspte kaas
+*  guacamole
+*  tacosaus
 Merknamen in de ingrediëntenlijst kunnen het gevolg zijn van een betaalde samenwerking. Sommige linkjes op deze pagina kunnen affiliate links zijn. Lees meer: disclaimer.
 
 
