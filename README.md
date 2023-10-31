@@ -14,17 +14,13 @@
 *  tacosaus
 Merknamen in de ingrediëntenlijst kunnen het gevolg zijn van een betaalde samenwerking. Sommige linkjes op deze pagina kunnen affiliate links zijn. Lees meer: disclaimer.
 
-
+![image](https://github.com/L0rdSquidy/Les05/assets/144682503/5776f033-cd2e-42ca-bfc6-3921d85066fb)
 BEREIDING
 Hak de ui fijn en bak deze samen met het de kip ongeveer 5 min. in een pan.
 
 Snijd ook de paprika in kleine blokjes en bak nog 5 min mee.
 
 Voeg 2 à 3 eetlepels van de Mexicaanse kruidenmix toe aan het kipmengsel samen met 3 eetlepels water.
-
-
-![image](https://github.com/L0rdSquidy/Les05/assets/144682503/5776f033-cd2e-42ca-bfc6-3921d85066fb)
-
 
 
 Laat de maïs uitlekken en warm nog even mee in de pan.
@@ -36,3 +32,7 @@ Schep wat van de vulling op de tortilla’s, bestrooi met wat in ringetjes gehak
 Serveer de wraps met kip met wat geraspte kaas, zure room en/of tacosaus. Lekker met rijst of een salade.
 
 Tip: voor een vegetarische variant vervang je de kip door stukjes vegetarische kip of kidneybonen.
+
+
+
+https://www.leukerecepten.nl/recepten/wraps-met-kip/
